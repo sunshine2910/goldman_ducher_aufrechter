@@ -1,0 +1,1 @@
+# goldman_ducher_aufrechter
